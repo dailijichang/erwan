@@ -1,6 +1,6 @@
 # 尔湾云加速器怎么样?
 
-## 三番云加速器官网地址
+## 尔湾云加速器官网地址
 最新官网地址：[尔湾云加速器官网](https://dljc.affxc.com/erwan/)
 
 ## 尔湾云加速器怎么样？
@@ -38,7 +38,7 @@
 目前尔湾云加速器没有跑路，可以放心使用。
 
 ## 尔湾云加速器评测
-更多有关三番云加速器评测可访问：https://jichangzhu.com/node/erwan/
+更多有关尔湾云加速器评测可访问：https://jichangzhu.com/node/erwan/
 
 ## 更多推荐
  - [最新10大稳定好用的机场推荐](https://github.com/dailijichang/jichangtuijian)
